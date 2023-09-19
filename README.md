@@ -1,2 +1,2 @@
 # mipractica
-practica personal
+practica personal solaa sola 
